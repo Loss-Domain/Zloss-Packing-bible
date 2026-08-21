@@ -1,1 +1,8 @@
 # Zloss-Packing-bible
+My nigga shut yo bitch ass up yo dad look like jack frost with a zesty edger walking around with bubble gum up his ass nasty gay nigga
+
+
+
+
+
+Counter: That shit was unfunny nigga tell me why i saw yo uncle in the back of the isle in walmart doing a twerking complilation bitch ass nigga
